@@ -1,0 +1,3 @@
+Andrew Yang
+Northeastern University
+2028
